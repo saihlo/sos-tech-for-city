@@ -1,6 +1,6 @@
 
 
-**Repte 1**: [Combatir la soledad en personas de la tercera edad]
+**Repte 2**: [Combatir la soledad en personas de la tercera edad]
 
 | Camp| Detalls|
 | --- | --- |
